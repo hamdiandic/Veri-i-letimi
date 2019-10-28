@@ -1,1 +1,2 @@
-# Veri-i-letimi
+1621012009 Furkan ORHAN
+1621012041 Hamdi ANDİÇ
